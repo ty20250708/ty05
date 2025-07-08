@@ -13,6 +13,6 @@
 不过，要注意这些平台可能会有广告或安全隐患，建议确保设备安全，避免在不安全的网络环境下观看。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ty20250708/ty05 ）</span>
 
 
